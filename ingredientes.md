@@ -1,0 +1,3 @@
+banana
+milk
+sugar

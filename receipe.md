@@ -1,0 +1,1 @@
+take acup and bananas and mix it in mixer and add some milk in bowl and mix banans and milk properly then your milk shake is ready
